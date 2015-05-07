@@ -1,2 +1,0 @@
-# IT-CuttingEdge
-##IT-CuttingEdge
